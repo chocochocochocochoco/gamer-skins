@@ -1,6 +1,6 @@
 # skins
 # [Snow White](https://www.mediafire.com/file/7a6apxolmgssser/Snow_White.rar/file)
-![](https://media.discordapp.net/attachments/802409609422962699/894129464081010688/unknown.png?width=1212&height=683)
+![](https://media.discordapp.net/attachments/802409609422962699/894130706685513748/unknown.png?width=1214&height=683)
 
-# [angelmgmwht](https://drive.google.com/file/d/1lmeI45mOkANPEtHe2PDHM48LgxhmtT3K/view?usp=sharing)
-![](https://media.discordapp.net/attachments/748348970044227588/894094379227152415/unknown.png?width=939&height=524)
+# [angelmixed](https://drive.google.com/file/d/1lmeI45mOkANPEtHe2PDHM48LgxhmtT3K/view?usp=sharing)
+![](https://media.discordapp.net/attachments/802409609422962699/894130483825365022/unknown.png?width=1214&height=683)

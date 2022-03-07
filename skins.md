@@ -1,5 +1,5 @@
 # skins
-# [wwwwwwwwwww](priv8)
+# [wwwwwwwwwww](priv8) (priv8)
 ![](https://cdn.discordapp.com/attachments/748348970044227588/950277890874945536/unknown.png)
 
 # [Snow Pink!](https://www.mediafire.com/file/za1hj96xyd1km9o/Snow+Pink!.osk/file)
